@@ -1,1 +1,1 @@
-# straight-sides-hydraulic-presses-gss
+# straight-side-hydraulic-press-gss-machinery
